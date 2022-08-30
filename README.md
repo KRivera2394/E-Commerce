@@ -21,6 +21,11 @@ What is my github username?
 https://github.com/KRivera2394
 
 
+
+Walkthrough Video
+-https://drive.google.com/file/d/1ENFsH_lxYYnkft71oo7jwZvF6hDlRTq8/view
+
+
 Best email to contact me?
 - Email : keanurivera2394@gmail.com
 
